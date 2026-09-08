@@ -1,0 +1,1 @@
+Somos un hospital publico autogestionado asistencial docente de alta complejidad integrado a la red; al servicio de la comunidad que brinda atención de salud oportuna, integral, humanozada y de calidad.

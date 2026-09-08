@@ -1,0 +1,1 @@
+Ser reconocido como el mejor hospital publico asistencial docente de Chile; innovador, centrado en brindar una atencial una atencion integral y humanizada en las persona, a sus familias y a la comunidad, con altos estandares de calidad. y seguridad.
